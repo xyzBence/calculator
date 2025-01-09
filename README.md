@@ -8,4 +8,4 @@ Made By: Bence
 
 
 
-https://imgur.com/tbo7zUq
+[https://imgur.com/tbo7zUq](https://imgur.com/tbo7zUq)
