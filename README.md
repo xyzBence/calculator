@@ -6,6 +6,4 @@ Made By: Bence
 
 2025-01-09
 
-
-
 [https://imgur.com/tbo7zUq](https://imgur.com/tbo7zUq)
